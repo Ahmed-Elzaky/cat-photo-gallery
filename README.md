@@ -1,1 +1,1 @@
-https://ahmed-elzaky.github.io/
+https://ahmed-elzaky.github.io/photo-gallery/
